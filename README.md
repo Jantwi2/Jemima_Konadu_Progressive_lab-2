@@ -1,1 +1,1 @@
-# Jemima_Konadu_Progressive_lab-2
+# Jemima_Konadu_Progressive_lab
